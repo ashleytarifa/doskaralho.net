@@ -1,0 +1,2 @@
+# doskaralho.net
+freddy mercure
